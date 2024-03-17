@@ -1,1 +1,1 @@
-Collect - Models 
+By Nizomiddinov Abdulaziz for Collect.
